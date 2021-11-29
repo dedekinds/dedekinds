@@ -7,6 +7,6 @@
 
 
 
-- 🤔 I’m a loser
-- 🌱 I’m currently thinking how to enjoy my life
+- 🤔 I’m a loser.
+- 🌱 I do not want to be a loser.
 - 📫 How to reach me: zhongzhanhuang@foxmail.com
