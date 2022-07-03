@@ -7,6 +7,6 @@
 
 
 
-- 🤔 I’m a loser.
-- 🌱 I do not want to be a loser.
+- 🤔 Welcome!
+- 🌱 Work hard ant the life can be what you want it to be.
 - 📫 How to reach me: zhongzhanhuang@foxmail.com
