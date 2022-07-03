@@ -7,6 +7,6 @@
 
 
 
-- 🤔 Welcome!
-- 🌱 Work hard ant the life can be what you want it to be.
+- 🤔 Work hard!
+- 🌱 The life can be what you want it to be.
 - 📫 How to reach me: zhongzhanhuang@foxmail.com
